@@ -1,3 +1,3 @@
 
-thami está muito cansada e quer terminar logo esse módulo pra poder ir dormir em paz.
+thami estÃ¡ muito cansada e quer ir dormir.
 aaaa
